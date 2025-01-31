@@ -9,3 +9,8 @@ https://github.com/arstefanello/desafio_DIO_Podcast/tree/main
 Ebook para pais e educadores
 https://github.com/arstefanello/desafio_DIO_ebook
 
+Baralho das emoções
+Será detalhado posteriormente
+
+Uso da IA para apoiar posagens em reses sociais (facebook e Insta)
+@amor.exigentinho.sm
